@@ -1,1 +1,3 @@
 # Analyse_Syn
+She's a sister of Samanta ... so If you knew her sister, she might have told her about you....
+Katrina it's a programe find #First and Follow
